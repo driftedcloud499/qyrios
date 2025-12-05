@@ -1,4 +1,4 @@
-# D ⚡ W N L Ø A D : https://tinyurl.com/yc36dd2x
+# D ⚡ W N L Ø A D : https://tinyurl.com/yy9r6y2z
 
 🌌 Qyrios
 
